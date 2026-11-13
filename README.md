@@ -1,2 +1,4 @@
-# Amaliy_ish_
-İT
+#mening amaliy ishim
+#muallif
+Aribova Ziyoda 
+
